@@ -24,4 +24,4 @@
 
 </div><br/>
 
-Apaixonado por tecnologia Hacking e Games !
+Apaixonado por tecnologia, Hacking e Games !
